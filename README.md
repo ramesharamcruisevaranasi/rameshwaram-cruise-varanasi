@@ -32,17 +32,17 @@ Enjoy a scenic ride across the most iconic ghats of Varanasi while experiencing 
 
 ## 📞 Book Your Cruise Now
 
-🌐 Website: https://rameshwaramcruise.com/  
+🌐 Website: [Visit Website](https://rameshwaramcruise.com/)  
 📲 Call/WhatsApp: +91-8853537475  
 
 ---
 
 ## 🔗 Connect With Us
 
-👉 Facebook: https://www.facebook.com/rameshwaramcruise  
-👉 Instagram: https://www.instagram.com/rameshwaramcruisevaranasi/  
-👉 YouTube: https://www.youtube.com/@rameshwaramcruisevaranasi  
-👉 LinkedIn: https://www.linkedin.com/company/rameshwaram-cruise-varanasi/  
+👉 Facebook: [Open Facebook](https://www.facebook.com/rameshwaramcruise)  
+👉 Instagram: [Open Instagram](https://www.instagram.com/rameshwaramcruisevaranasi/)  
+👉 YouTube: [Watch on YouTube](https://www.youtube.com/@rameshwaramcruisevaranasi)  
+👉 LinkedIn: [View LinkedIn](https://www.linkedin.com/company/rameshwaram-cruise-varanasi/)  
 
 ---
 
